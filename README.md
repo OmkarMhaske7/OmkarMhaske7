@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OmkarMhaske7
+- 👀 I’m interested in Algorithmic Trading in Stock Market and Crypto Market
+- 🌱 I’m currently learning Algotrading and Automation
+- 💞️ I’m looking to collaborate on Algotrading
+- 📫 How to reach me 8080933094 or omhaske9@gmail.com
